@@ -18,3 +18,7 @@ A place for UK Apes to discuss international stocks - such as Laws, Taxes, Broke
 ## [Sluttspill](https://www.reddit.com/r/Sluttspill/)
 
 GME for Norden
+
+## [NZGME](https://reddit.com/r/NZGME/)
+
+Problem solving, solution seeking for NZ GME holders.
